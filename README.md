@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @somegirlspecial
 - 👀 I’m interested in family & nature
-- 🌱 I’m currently learning solder & programming
+- 🌱 I’m currently learning to solder
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me here
 
